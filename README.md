@@ -1,2 +1,4 @@
 # Manu.Shrivastava.BDAT1004.FINAL_PROJECT_GROUP5
 Final Project - Group 5
+Kindly go to folowing link for presentation.
+Link to One Drive : https://georgiancollege-my.sharepoint.com/:v:/g/personal/200559323_student_georgianc_on_ca/Edtsbwa9JNdGskvQJPuTcNYBLRn_3dMAVe4uILplupNrLw?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0RpcmVjdCJ9fQ&email=Akshat.Tomar%40MyGeorgian.ca&e=XgK7bX
